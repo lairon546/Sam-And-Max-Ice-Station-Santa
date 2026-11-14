@@ -218,4 +218,4 @@ Sam & Max: Ice Station Santa is available as a full free version with all featur
 Don't miss out on this fantastic adventure! **Download Sam & Max: Ice Station Santa now and save Christmas!**
 
 ---
-**Last updated:** 2026-11-14 04:55:45 UTC
+**Last updated:** 2026-11-14 11:51:16 UTC
